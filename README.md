@@ -1,2 +1,2 @@
 ### 
-Hi I'm an up-and-coming game developer
+Hi I'm an down-coming game developer
